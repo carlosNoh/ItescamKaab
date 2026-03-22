@@ -85,3 +85,7 @@ Este proyecto forma parte de un trabajo de tesis enfocado en la digitalización 
 ##  Licencia 
 
 Uso académico y educativo.
+---
+
+## Deescarga completo el proyecto 
+https://drive.google.com/drive/folders/1AA9OyfRm9bbNbBa-umpETd4QgUFFZdeD?usp=sharing 
